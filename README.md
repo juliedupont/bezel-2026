@@ -1,4 +1,4 @@
-##Bezel : Tout Ce Que Tu Dois Savoir Sur Le Site de Frankenwatch
+## Bezel : Tout Ce Que Tu Dois Savoir Sur Le Site de Frankenwatch
 
 Tu cherches **Bezel** ? Le site dont tout le monde parle dans le game des montres ? Voilà l'essentiel : **Bezel** est une boutique en ligne spécialisée dans les montres **frankenwatch** — ces pièces assemblées avec des composants d'origine qui reproduisent à l'identique les modèles de luxe. Un positionnement unique, un process carré, et une réputation qui s'est construite sur la qualité plutôt que sur le blabla.
 
